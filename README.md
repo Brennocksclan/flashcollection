@@ -1,1 +1,2 @@
-# just-some-flash-collection-i-made-with-my-fav-flash-games
+a collection i made that has my favorite flash games 
+you can suggest more if ya want
